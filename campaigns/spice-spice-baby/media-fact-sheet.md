@@ -40,9 +40,9 @@ Pairs perfectly with the Spicy Mary.
 
 ### 2. Sunrise Tostadas, $11.99
 
-**Description:** Three crisp 6-inch corn tostadas piled with slow-cooked carnitas, cheddar jack, salsa verde, shredded lettuce and pico de gallo. Two slices of fresh avocado and four slices of fresh jalapeño on every one, finished with a verde crema drizzle.
+**Description:** Three crisp 6-inch corn shells, each one loaded with slow-cooked carnitas, cheddar jack, salsa verde, shredded lettuce and pico de gallo. Six slices of fresh avocado across the three, plus fresh jalapeño on every one. The whole plate gets a drizzle of verde crema, our salsa verde folded into sour cream, so the heat and the cool land in the same bite.
 
-Pairs well with the Spicy Mary.
+Pairs well with the Spicy Mary. Yes, at breakfast.
 
 **Allergens:** Milk/Dairy
 
@@ -152,4 +152,4 @@ General media inquiries: press@wildeggs.com
 
 ---
 
-*Published as a Google Doc: https://docs.google.com/document/d/1tXz5fMW_xkoysD4Wy0qLYqf_uKCkLJtGyYmDZ28kA9s/edit*
+*Published as a Google Doc: https://docs.google.com/document/d/1KDEqieUg3tNJEigbK9Fd_wPapEkedb9sZaBQQVEra78/edit*
